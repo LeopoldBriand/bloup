@@ -1,0 +1,3 @@
+
+# Les sociétés d’attribution et d’autopromotion 
+Les sociétés d’attribution et d’autopromotion peuvent prendre la forme civile ou la forme commerciale. Elles ont pour objet d’attribuer à leurs associés la jouissance ou la propriété de logements. Elles peuvent pour cela construire un immeuble. Contrairement aux coopératives d’habitants, ces sociétés peuvent donc donner lieu à des copropriétés lorsque les statuts prévoient une attribution en propriété, dès lors que l’un des associés se retire ou bien que la société est dissoute. Si les statuts prévoient une attribution en jouissance, la société aura vocation à perdurer dans le temps. Les sorties de la société sont également encadrées afin de sécuriser l’équilibre financier de la société.
